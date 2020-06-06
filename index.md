@@ -1,4 +1,4 @@
-# Welcome to Divya's Blog!
+# Welcome to my Blog!
 
-I'm Divya Ananth and I welcome you to my blog!
+Hello! I'm Divya Ananth and I welcome you to my blog!
 
